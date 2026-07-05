@@ -11,6 +11,10 @@ There may be exceptions, but they are extremely rare.
 
 ## Notes & Credits:
 
-@elsqued / @hudmaceachern for their OC i based from this project you find here:  to make this AU's from the OC of elsqued
+@elsqued / @hudmaceachern for their OC i / we based from this project you find here:
 
 https://scratch.mit.edu/projects/858914504/
+
+@stormwindsky for the OC from 29 May 2018 i / we based from this project you can find here: 
+
+https://scratch.mit.edu/projects/226257283/
