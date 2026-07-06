@@ -14,7 +14,7 @@ To find out the requirements for it to be accepted
 
 ### Here:
 
-[RULES :)
+[RULES
 ](https://github.com/Alternate-Universe-Team/Scratch-OCs-but-AUfied/blob/main/Rules.md)
 ## Notes & Credits:
 ### MOVED FROM THE FILES ORIGINS OF THE SPRITES
