@@ -4,6 +4,10 @@ All oc's made on the website Scratch but AUfied (4 fun lol)
 
 ## IMPORTANT:
 
+All AUfied sprites are licensed under the same license as those on the Scratch website for legal reasons; therefore, this repository is licensed under the Creative Commons Attribution-ShareAlike 2.0 license.
+
+& also
+
 The only rule you need 2 to if yu want to be here
 
 Your OC need not with copyrighted thing etc so 100% made by you
