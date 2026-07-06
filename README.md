@@ -10,11 +10,8 @@ There may be exceptions, but they are extremely rare.
 
 
 ## Notes & Credits:
+### MOVED FROM THE FILES ORIGINS OF THE SPRITES
 
-@elsqued / @hudmaceachern for their OC i / we based from this project you find here:
+### YOU CAN FIND FOR EXAMPLE HERE:
 
-https://scratch.mit.edu/projects/858914504/
-
-@stormwindsky for the OC from 29 May 2018 i / we based from this project you can find here: 
-
-https://scratch.mit.edu/projects/226257283/
+https://github.com/Alternate-Universe-Team/Scratch-OCs-but-AUfied/tree/main/Lists/Horror%20AU/elsqued
