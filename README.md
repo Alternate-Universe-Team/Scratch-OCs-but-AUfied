@@ -6,6 +6,9 @@ All oc's made on the website Scratch but AUfied (4 fun lol)
 
 All AUfied sprites are licensed under the same license as those on the Scratch website for legal reasons; therefore, this repository is licensed under the Creative Commons Attribution-ShareAlike 2.0 license.
 
+ALL MODIFIED ASSETS ARE LEGALLY PERMITTED UNDER THE SAME LICENSE, EXCEPT THOSE CREATED ON OR AFTER January 22, 2026, BECAUSE THE SCRATCH TEAM HAS CHANGED THEIR TERMS OF USE, ETC. SO PLEASE USE ONLY
+OC'S THAT WERE CREATED BEFORE January 22, 2026. Thank you for your understanding.
+
 & also
 
 The only rule you need 2 to if yu want to be here
